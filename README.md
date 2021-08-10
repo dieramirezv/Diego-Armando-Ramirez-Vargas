@@ -1,2 +1,6 @@
 # Diego-Armando-Ramirez-Vargas
-Tecnólogo en Gestión Logística 
+
+
+
+Tecnólogo en Gestión Logística SENA 
+
